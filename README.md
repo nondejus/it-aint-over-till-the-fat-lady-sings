@@ -1,5 +1,7 @@
 # it-aint-over-till-the-fat-lady-sin
 
+https://nl.wikipedia.org/wiki/Bouman_GGZ
+
 https://nl.linkedin.com/in/mjanssenvanraay
 
 https://en.wikipedia.org/wiki/Mutilation
